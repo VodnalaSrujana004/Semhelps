@@ -1,1 +1,1 @@
-# Semhelps
+# content useful for student life
